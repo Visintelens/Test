@@ -1,4 +1,4 @@
 ##
 > **Bing Creator Image**
 
-sadaaaaaaaaaaaaaaaaaa
+Bing Creator Image - это
